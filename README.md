@@ -85,14 +85,5 @@ Ask me anything **[here](https://github.com/rvuyyuru1/rvuyyuru1/issues/new)** or
 
 </p>
 </div>
-<br />
-<br />
 
 
-
----
-
-<div align="center">
-Credit: [rvuyyur1](https://github.com/rvuyyuru1)
-Last Edited on: 21/09/2022
-</div>
